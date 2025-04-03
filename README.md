@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @jess-dantas
+👋 Hi, I’m @jess-dantas
 
 Mais de 20 anos atuando em diferentes funções em projetos de tecnologia, com ênfase em Qualidade.
 
